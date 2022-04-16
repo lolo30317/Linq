@@ -1,3 +1,3 @@
 # Linq
 
-you can contact me on kutaykayikci@protonmail.com 
+you can contact me on kutaykayikci@proton.me 
